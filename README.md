@@ -1,0 +1,2 @@
+# La-Danse
+La scuola è diretta da Gabriella Cerasuolo, che ha deciso di dedicarsi all’insegnamento in seguito a una lunga e apprezzata carriera come ballerina. La sua formazione spazia dalla danza alle scienze biologiche all’alimentazione. Propone all’interno della sua scuola un approccio universale, volto a seguire gli allievi in maniera completa, non solo per quanto concerne le tecniche di ballo ed espressive, ma anche per quanto riguarda l’aspetto psicologico e nutrizionale di ogni singolo alunno.
